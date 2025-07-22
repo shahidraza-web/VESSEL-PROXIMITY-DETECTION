@@ -6,3 +6,5 @@ MAIN ALGORITHM VIDEO EXPLANATION LINK: https://drive.google.com/file/d/1IRQUWSQy
 
 THEORETICAL AND MAP PLOTTING EXPLANATION LINK:
 https://drive.google.com/file/d/1KzpfoqxSZzCUuPW8y5H_faK3ql8NKcj_/view?usp=drive_link
+
+LinkedIn:https://www.linkedin.com/in/shahid-raza-b4b36a267?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app
